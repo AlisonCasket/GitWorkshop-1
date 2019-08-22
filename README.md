@@ -8,5 +8,7 @@ To complete this assignment, edit this README by doing the following,
 
 Once your are done, save this file.
 
-Test
-sslkadfj;adfjalkdfjaskdjfasdlkfjaslkdfjasdfj;alksd
+Zoe Abbott
+I like Pie, my naginata, and I really like cats.
+Honestly I really love computers and I am inspired by my dad to keep working.
+
